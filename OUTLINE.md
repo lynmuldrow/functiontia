@@ -31,13 +31,13 @@ Present day, 2015, San Francisco, Pacific Time
 
 ##### Characters: 
 
-*Tiandra Williams- protagonist, detailed above
-*Estelle White- Tia's best friend: crazy, wild, adventurous, fun 
-*Ed Harris- Tia's male best friend: chill, cool, earthy, wise 
-*Lisa Robbins- Tia's love interest: soothing, natural, similar to Tia, funny 
-*Bill Mayer- Tia's co-worker: cynical, sarcastic, serious
-*Pete, Dave, Ken, Ron: Tia's annoying coworkers, brogrammers, Tia calls the group "The BroYo's"
-*Breath- Tia's coworker, who continually tries to hit on her and has foul breath
-*Kip Zuckers- the owner of Tia's company: flighty, young, unconcerned
-*President Bamhain- President of the United States: appreciative, suprised, wise
+* Tiandra Williams- protagonist, detailed above
+* Estelle White- Tia's best friend: crazy, wild, adventurous, fun 
+* Ed Harris- Tia's male best friend: chill, cool, earthy, wise 
+* Lisa Robbins- Tia's love interest: soothing, natural, similar to Tia, funny 
+* Bill Mayer- Tia's co-worker: cynical, sarcastic, serious
+* Pete, Dave, Ken, Ron: Tia's annoying coworkers, brogrammers, Tia calls the group "The BroYo's"
+* Breath- Tia's coworker, who continually tries to hit on her and has foul breath
+* Kip Zuckers- the owner of Tia's company: flighty, young, unconcerned
+* President Bamhain- President of the United States: appreciative, suprised, wise
 
